@@ -1,2 +1,2 @@
-# Digital-Plateform-for-Entrepreneurs
+# Strategic doing
 This is for INFM 603
